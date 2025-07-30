@@ -1,0 +1,1 @@
+# minha_parte_grupo_3
